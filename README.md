@@ -6,7 +6,7 @@
   
 ↓永久地址发布站↓
 
- [https://night03.live](https://night03.live/?utm_source=github&utm_medium=forever)
+ [https://night04.live](https://night04.live/?utm_source=github&utm_medium=forever)
 ------------------------------------------------------------------------------
   
 ↓海外永久地址(需翻墙)↓
